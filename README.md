@@ -1,1 +1,0 @@
-# gitpages_practica
